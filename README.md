@@ -1,5 +1,7 @@
 ## Hi there! 👋🏻
 
+![](https://komarev.com/ghpvc/?username=meet59patel&color=brightgreen)
+
 ### 📫 How to reach me:
 
 <p>
